@@ -1,0 +1,2 @@
+# Mode-VERTIKAL----Mode-room-VERTIKAL-HORIZONTAL----HORIZONTAL----
+test
